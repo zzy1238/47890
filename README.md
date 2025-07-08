@@ -24,4 +24,4 @@
 成人内容平台必须遵循当地法律法规，并确保有年龄验证机制，避免未成年人访问不适当内容。合法合规的运营方式不仅能增加平台的权威性，还能提升搜索引擎的信任度，帮助提高排名。
 结语
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/zzy1238/47890 ）</span>
